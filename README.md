@@ -29,7 +29,7 @@ also im generally a pretty shy person, so pls intereact first! the most ill do i
 
 </p>
 <p align="center">
-<img src=https://github.com/cosmicsourrollz/slingshotlalalala/blob/5c2809d1491abb33f4b82ee2de0aaf4e53b871ea/bluehearts.gif width="450"> <img src=https://github.com/cosmicsourrollz/slingshotlalalala/blob/5c2809d1491abb33f4b82ee2de0aaf4e53b871ea/bluehearts.gif width="450">
+<img src=https://github.com/cosmicsourrollz/slingshotlalalala/blob/5c2809d1491abb33f4b82ee2de0aaf4e53b871ea/bluehearts.gif width="400"> <img src=https://github.com/cosmicsourrollz/slingshotlalalala/blob/5c2809d1491abb33f4b82ee2de0aaf4e53b871ea/bluehearts.gif width="400">
 </p>
 
 <details <p align="center">
