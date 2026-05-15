@@ -4,7 +4,7 @@
 </p>
 
 <p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sniglet&size=10&pause=1000&color=D3EEF7&center=true&vCenter=true&repeat=false&width=435&lines=best+viewed+on+computer+!" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sniglet&size=10&pause=1000&color=D3EEF7&center=true&vCenter=true&repeat=false&width=435&lines=best+viewed+on+computer+!" alt="Typing SVG" width="800" /></a>
 </p>
 
 </p>
@@ -17,7 +17,7 @@
 </p>
 
 <details <p align="center">
-<summary> $${\color{#1CA7D6} ⬅ \space BYI \space ... }$$  </summary>
+<summary> $${\color{#C1DFE8} ⬅ \space BYI \space ... }$$  </summary>
 age group im comfortable being friends with is around 12-16! any higher pls iwc, also if u actually wanna be friends ask for my discord 👀
 
 also im generally a pretty shy person, so pls intereact first! the most ill do is probably compliment you and then shut my mouth 😭
