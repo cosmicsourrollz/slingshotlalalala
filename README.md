@@ -9,7 +9,7 @@
 
 </p>
 <p align="center">
-<img src=https://github.com/cosmicsourrollz/slingshotlalalala/blob/e411f56903848e0d597b7dd07107231cea6bb774/Untitled2187_20260514201314.PNG width="700">
+<img src=https://github.com/cosmicsourrollz/cosmicsourrollz/blob/829fd16b70fd7c44209fbc833a0af0180a8f95ea/Untitled2187_20260515164936.PNG width="700">
 </p>
 
 <p align="center">
