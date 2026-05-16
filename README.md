@@ -81,6 +81,7 @@ also im generally a pretty shy person, so pls intereact first! the most ill do i
 
 - phighting fans in general (since its my main interest rn)
 - coilshot enjoyers,, Hello,, everybody,,, Ok.
+- highkey might be a super rare occurance but,, people who also love baking 👀 PLEASE share recipes with me ohmgosh i need things to make
 - if ur a friend of one of my friends!! I LOVE MEETING PEOPLEEE!!!
 - thats. kinda it?? INT IF YOU KNOW ANY OF MY FANDOMS TOOOO!!!
 - 311 311 311 3111 fans 311 OHMGODDD 3111 OHMGDp 311 OHMGDOP
