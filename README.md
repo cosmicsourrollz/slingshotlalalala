@@ -4,7 +4,7 @@
 </p>
 
 <p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sniglet&size=10&pause=1000&color=D3EEF7&center=true&vCenter=true&repeat=false&width=435&lines=best+viewed+on+computer+!" alt="Typing SVG" width="800" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sniglet&size=30&pause=1000&color=5190C8&background=FFFFFF00&center=true&repeat=false&width=435&lines=+%CB%98%E2%80%87%E2%80%87sour%E2%80%87%E2%80%87or%E2%80%87%E2%80%87sling+!%E2%80%87%E2%80%87+%CB%98" alt="Typing SVG" wdith="500" /></a>
 </p>
 
 </p>
@@ -12,12 +12,13 @@
 <img src=https://github.com/cosmicsourrollz/cosmicsourrollz/blob/4ee3da62deb4deb16fde09082b47b51f39ed52c0/Untitled2187_20260514201314.PNG width="700">
 </p>
 
+</p>
 <p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sniglet&size=30&pause=1000&color=5190C8&background=FFFFFF00&center=true&repeat=false&width=435&lines=+%CB%98%E2%80%87%E2%80%87sour%E2%80%87%E2%80%87or%E2%80%87%E2%80%87sling+!%E2%80%87%E2%80%87+%CB%98" alt="Typing SVG" wdith="500" /></a>
+<img src=https://github.com/cosmicsourrollz/slingshotlalalala/blob/5c2809d1491abb33f4b82ee2de0aaf4e53b871ea/bluehearts.gif width="350"> <img src=https://github.com/cosmicsourrollz/slingshotlalalala/blob/5c2809d1491abb33f4b82ee2de0aaf4e53b871ea/bluehearts.gif width="350">
 </p>
 
 <details <p align="center">
-<summary> $${\color{#C1DFE8} ⬅ \space BYI \space ... }$$  </summary>
+<summary> $${\color{#3076A1} ⬅ \space BYI \space ... }$$  </summary>
 age group im comfortable being friends with is around 12-16! any higher pls iwc, also if u actually wanna be friends ask for my discord 👀
 
 also im generally a pretty shy person, so pls intereact first! the most ill do is probably compliment you and then shut my mouth 😭
@@ -25,11 +26,6 @@ also im generally a pretty shy person, so pls intereact first! the most ill do i
 
 <p align="center">
 ꕀ
-</p>
-
-</p>
-<p align="center">
-<img src=https://github.com/cosmicsourrollz/slingshotlalalala/blob/5c2809d1491abb33f4b82ee2de0aaf4e53b871ea/bluehearts.gif width="350"> <img src=https://github.com/cosmicsourrollz/slingshotlalalala/blob/5c2809d1491abb33f4b82ee2de0aaf4e53b871ea/bluehearts.gif width="350">
 </p>
 
 <details <p align="center">
