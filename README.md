@@ -7,6 +7,10 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sniglet&size=30&pause=1000&color=5190C8&background=FFFFFF00&center=true&repeat=false&width=435&lines=+%CB%98%E2%80%87%E2%80%87sour%E2%80%87%E2%80%87or%E2%80%87%E2%80%87sling+!%E2%80%87%E2%80%87+%CB%98" alt="Typing SVG" wdith="500" /></a>
 </p>
 
+<p align="center">
+  𓈒⟡₊
+</p>
+
 </p>
 <p align="center">
 <img src=https://github.com/cosmicsourrollz/cosmicsourrollz/blob/4ee3da62deb4deb16fde09082b47b51f39ed52c0/Untitled2187_20260514201314.PNG width="700">
