@@ -58,6 +58,7 @@ im a slingshot kinnie (others aswell, but just saying this since its the theme t
 <summary> $${\color{#9EEAFF} ⬅ \space THIN \space ICE! }$$  </summary>
   
 - forsaken fans, pressure fans, any problematic game enjoyers who STILL play the games, self explanatory
+- house of puso FANDOM, i just find that it has a fanbase a bit odd. liking the show is okay i suppose
 - people who's only humor/personality is insults (i usually only insult/tease people i consider close, so i just dont rlly understand doing that right off the bat,,)
 - again, people who's only humor/personality is sex jokes or just being suggestive in general, i make these jokes sometimes myself but i dont rlly understand just,, making that your whole thing?? idk😭
 - jokes about serious topics and things happening in the world, past, present, etc, i just find it a bit odd
