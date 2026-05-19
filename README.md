@@ -26,7 +26,7 @@
 age group im comfortable being friends with is around 12-16! any higher pls iwc, also if u actually wanna be friends ask for my discord 👀
 
 
-im a slingshot kinnie (others aswell, but just saying this since its the theme too) and coil yume!! doubles iwec/dniuid! thank you
+im a slingshot kinnie (others aswell, but just saying this since its the theme too) and coil, discard(TU) and sprout(DW) yume!! sharing doubles can int!! selective/nonsharing iwec/dniuid thank you
 
 (also im generally a pretty shy person, so pls intereact first if you wanna talk or be friends! the most ill do is probably compliment you and then shut my mouth 😭)
 </details>
