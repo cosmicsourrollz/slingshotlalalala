@@ -23,7 +23,7 @@
 
 <details <p align="center">
 <summary> $${\color{#3076A1} ⬅ \space BYI \space ... }$$  </summary>
-age group im comfortable being friends with is around 12-16! any higher pls iwc, also if u actually wanna be friends ask for my discord 👀
+age group im comfortable being friends with is around 12-17! any higher pls iwc, also if u actually wanna be friends ask for my discord 👀
 
 
 im a slingshot kinnie (others aswell, but just saying this since its the theme too) and coil, discard(TU) and sprout(DW) yume!! sharing doubles can int!! selective/nonsharing iwec/dniuid thank you
